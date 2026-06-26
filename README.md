@@ -12,8 +12,6 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="99" height="56" alt="tumblr_5f7baf5b8c8170d3fb00ed5907a7610b_9f616828_100" src="https://github.com/user-attachments/assets/f521a51d-d0ab-4459-bcb9-b17cf01ca44f" />
 <img width="99" height="56" alt="tumblr_4e1cc590e2be7c55527500f1142ac5ea_c341fd87_100" src="https://github.com/user-attachments/assets/a44e423c-273a-434e-9bb0-ad6b9c7d7b0b" />
 <img width="99" height="56" alt="tumblr_7d95cccd1ef31aa7696df1b8c0bbae62_850bc8aa_100" src="https://github.com/user-attachments/assets/61cf9b50-9bc9-46f0-9076-32df62def512" /><img width="322" height="237" alt="Untitled37_20260626124022" src="https://github.com/user-attachments/assets/6a71042e-c4c1-4c74-88bd-117d6091d2b8" />
-<img width="2000" height="1584" alt="brandbird-stamp (5)" src="https://github.com/user-attachments/assets/ec15f2e9-d540-477d-bc68-bc33728cc991" />
-<img width="2000" height="1584" alt="brandbird-stamp (4)" src="https://github.com/user-attachments/assets/26b976b2-01d3-45e2-a6ed-5b76f0dc7e1b" />
 
 
 
