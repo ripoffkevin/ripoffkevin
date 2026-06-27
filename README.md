@@ -13,13 +13,12 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="99" height="56" alt="tumblr_4e1cc590e2be7c55527500f1142ac5ea_c341fd87_100" src="https://github.com/user-attachments/assets/a44e423c-273a-434e-9bb0-ad6b9c7d7b0b" />
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76e5ba&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76e5ba&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&redirect=true) ♬⋆.˚
 
-(sorry for how fucking big these stamps are idk how to change it.)
+interests stamps ◝ ⩊ ◜
 
 <img width="100" height="56" alt="Untitled37_20260626124305" src="https://github.com/user-attachments/assets/d9f34c07-8fff-4e79-8aa4-b116c3b8d3df" />
 <img width="100" height="56" alt="Untitled37_20260626124022" src="https://github.com/user-attachments/assets/84798194-4dcd-414b-92e7-dabe16967560" />
-<img width="100" height="56" alt="brandbird-stamp (5)" src="https://github.com/user-attachments/assets/5d7f2416-82ed-4d02-963a-e42816fe3dd2" />
 <img width="100" height="56" alt="brandbird-stamp (4)" src="https://github.com/user-attachments/assets/5a56bf1c-42a9-4099-af4c-ffed4f5ff6e5" />
 
 
