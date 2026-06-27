@@ -20,6 +20,8 @@ interests stamps ◝ ⩊ ◜
 <img width="100" height="56" alt="Untitled37_20260626124305" src="https://github.com/user-attachments/assets/d9f34c07-8fff-4e79-8aa4-b116c3b8d3df" />
 <img width="100" height="56" alt="Untitled37_20260626124022" src="https://github.com/user-attachments/assets/84798194-4dcd-414b-92e7-dabe16967560" />
 <img width="100" height="56" alt="brandbird-stamp (4)" src="https://github.com/user-attachments/assets/5a56bf1c-42a9-4099-af4c-ffed4f5ff6e5" />
+<img width="100" height="59" alt="Adobe Express - file (5)" src="https://github.com/user-attachments/assets/5fe887ee-f8a0-4b61-b8f2-6ae5416f9ee6" />
+
 
 
 
