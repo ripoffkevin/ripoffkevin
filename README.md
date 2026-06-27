@@ -4,7 +4,7 @@ call me ripoffkevin or marco, i usually walk around, sit, or im talking to frien
 
 i will block you if you dont like me. its not all that hard to leave me alone if you dislike my stances on things
 
-if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely get uncomfortable otherwise!!! DO NOT CALL ME SHE OR HER AT ALL IN MY JAX PONY!!
+if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely get uncomfortable otherwise!!! DO NOT CALL ME SHE OR HER AT ALL IN MY JAX PONY!! I DONT BELIEVE IN TRANSFEM JAX AND YOU SHOULDNT EITHER!!!
 
 <img width="99" height="56" alt="tumblr_b09ba4432fab5752771f549d09b87952_bd54c428_100" src="https://github.com/user-attachments/assets/784c8eb8-aece-48a3-8d73-42bbaee5eea9" /> <img width="100" height="57" alt="3119e27d" src="https://github.com/user-attachments/assets/1c4c0033-7260-421c-adb9-c29d1ea7437c" /> <img width="102" height="63" alt="Tumblr-l-266875730952152" src="https://github.com/user-attachments/assets/f6f1035a-e3aa-451b-8948-c0ca687e001a" /> <img width="99" height="56" alt="tumblr_bef20224524725e7c3e4f0afc5500bd2_3d861c51_100" src="https://github.com/user-attachments/assets/8b598806-f9c3-4278-b043-7fe86e796f22" /><img width="99" height="56" alt="tumblr_inline_pdyu8oMFEG1v11djx_500" src="https://github.com/user-attachments/assets/8ba96452-78cf-4f4f-b95b-2b887b2dfdaf" />
 <img width="99" height="56" alt="tumblr_865e3cd7f4d35761135e8fde3fea06d2_a854b6bc_100" src="https://github.com/user-attachments/assets/17146a5d-3f73-4455-9066-2e415a236d43" />
@@ -18,8 +18,7 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 interests stamps ◝ ⩊ ◜
 
 <img width="100" height="56" alt="Untitled37_20260626124305" src="https://github.com/user-attachments/assets/d9f34c07-8fff-4e79-8aa4-b116c3b8d3df" />
-<img width="100" height="56" alt="Untitled37_20260626124022" src="https://github.com/user-attachments/assets/84798194-4dcd-414b-92e7-dabe16967560" />
-<img width="100" height="56" alt="brandbird-stamp (4)" src="https://github.com/user-attachments/assets/5a56bf1c-42a9-4099-af4c-ffed4f5ff6e5" />
+<img width="100" height="56" alt="Untitled37_20260626124022" src="https://github.com/user-attachments/assets/84798194-4dcd-414b-92e7-dabe16967560" /><img width="100" height="59" alt="brandbird-stamp_4_cropped" src="https://github.com/user-attachments/assets/1d125e88-0fdf-450d-a250-64e6a29757c5" />
 <img width="100" height="59" alt="Adobe Express - file (5)" src="https://github.com/user-attachments/assets/5fe887ee-f8a0-4b61-b8f2-6ae5416f9ee6" />
 
 
