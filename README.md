@@ -22,18 +22,8 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76e5ba&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&redirect=true) ♬⋆.˚
-<img width="88" height="31" alt="22f1fbf3" src="https://github.com/user-attachments/assets/e65e48b6-bff6-4b25-90bc-d188ac5b5976" />
+<img width="88" height="31" alt="22f1fbf3" src="https://github.com/user-attachments/assets/a4059fa4-ed8b-45ee-b36d-633f51e006b2" />
 
-
-interests stamps ◝ ⩊ ◜
-
-<img width="100" height="56" alt="Untitled37_20260626124305" src="https://github.com/user-attachments/assets/d9f34c07-8fff-4e79-8aa4-b116c3b8d3df" />
-<img width="100" height="56" alt="Untitled37_20260626124022" src="https://github.com/user-attachments/assets/84798194-4dcd-414b-92e7-dabe16967560" /><img width="100" height="59" alt="brandbird-stamp_4_cropped" src="https://github.com/user-attachments/assets/1d125e88-0fdf-450d-a250-64e6a29757c5" />
-<img width="100" height="59" alt="Adobe Express - file (5)" src="https://github.com/user-attachments/assets/5fe887ee-f8a0-4b61-b8f2-6ae5416f9ee6" /> <img width="88" height="31" alt="9e1889e0" src="https://github.com/user-attachments/assets/26680986-9ae5-42e2-ad79-2ceab7237eff" />
-<img width="99" height="56" alt="c611ce54" src="https://github.com/user-attachments/assets/fae68b03-4f91-47a7-86dc-fae136b4d2a8" />
-<img width="99" height="55" alt="1c2e8e75" src="https://github.com/user-attachments/assets/8bd94417-d1bd-449c-8b86-14f4e83b5dc9" />
-<img width="99" height="56" alt="5fbf37db" src="https://github.com/user-attachments/assets/2db8354a-996d-4fa1-9b28-e30a3c65ea02" />
-<img width="99" height="56" alt="2b956279" src="https://github.com/user-attachments/assets/a9d74105-b09b-43ae-8f67-5f8334ece0b5" />
 
 
 
