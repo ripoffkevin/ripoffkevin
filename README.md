@@ -18,6 +18,7 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="99" height="57" alt="tumblr_99b5ba653b801142c89c244e05773f90_13922b9e_100" src="https://github.com/user-attachments/assets/f8c79e61-93d4-4a7a-9df1-c8ac024ba3f6" />
 <img width="99" height="56" alt="tumblr_ab0a9ea037bb2e64f69265f2436b023c_5920c329_100" src="https://github.com/user-attachments/assets/3233ffbd-ebca-4b2a-a5fb-3587c7001326" />
 <img width="99" height="55" alt="tumblr_746b02a6882e77c9f6eacd0adee74fb4_19794ca8_100" src="https://github.com/user-attachments/assets/df6a27f1-c5ab-4105-8502-47322218d8fb" />
+<img width="2000" height="1584" alt="brandbird-stamp (6)" src="https://github.com/user-attachments/assets/6fcedff5-5075-421c-9f00-ee4ff988f549" />
 
 
 
@@ -25,6 +26,10 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76e5ba&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&redirect=true) ♬⋆.˚
 <img width="88" height="31" alt="22f1fbf3" src="https://github.com/user-attachments/assets/a4059fa4-ed8b-45ee-b36d-633f51e006b2" />
 
+extras
+<img width="20" height="20" alt="tumblr_1c421321ab3b8f1ef461c3416ea7aa16_1ab5b667_75" src="https://github.com/user-attachments/assets/93348750-ec2e-40e2-a719-64734fa105f5" />
+<img width="20" height="20" alt="tumblr_3c2102895b6de22a82b9f17a33ce707c_5b663d8c_75" src="https://github.com/user-attachments/assets/2c0d7cf6-bef0-4914-8235-19f0fec6009d" />
+<img width="250" height="250" alt="tumblr_de81a905550dd9719655586438c5b3de_9815d56a_250" src="https://github.com/user-attachments/assets/16ef8ace-ae0d-41c5-8c52-ebfe3be25ce4" />
 
 
 
