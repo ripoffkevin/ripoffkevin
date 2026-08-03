@@ -3,11 +3,13 @@
 
 
 
-call me ripoffkevin or marco, i usually walk around, sit, or im talking to friends
+call me ripoffkevin or marco, i usually hunt clovers/pearls, sit around afk, or im talking to friends!
 
-i will block you if you dont like me. its not all that hard to leave me alone if you dislike my stances on things
+i will block you if you dont like me. its not all that hard to leave me alone if you dislike my stances on things.
 
 if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely get uncomfortable otherwise!!! DO NOT CALL ME SHE OR HER AT ALL IN MY JAX PONY!! I DONT BELIEVE IN TRANSFEM JAX AND YOU SHOULDNT EITHER!!!
+
+
 
 <img width="99" height="56" alt="tumblr_b09ba4432fab5752771f549d09b87952_bd54c428_100" src="https://github.com/user-attachments/assets/784c8eb8-aece-48a3-8d73-42bbaee5eea9" /> <img width="100" height="57" alt="3119e27d" src="https://github.com/user-attachments/assets/1c4c0033-7260-421c-adb9-c29d1ea7437c" /> <img width="102" height="63" alt="Tumblr-l-266875730952152" src="https://github.com/user-attachments/assets/f6f1035a-e3aa-451b-8948-c0ca687e001a" /> <img width="99" height="56" alt="tumblr_bef20224524725e7c3e4f0afc5500bd2_3d861c51_100" src="https://github.com/user-attachments/assets/8b598806-f9c3-4278-b043-7fe86e796f22" /><img width="99" height="56" alt="tumblr_inline_pdyu8oMFEG1v11djx_500" src="https://github.com/user-attachments/assets/8ba96452-78cf-4f4f-b95b-2b887b2dfdaf" />
 <img width="99" height="56" alt="tumblr_865e3cd7f4d35761135e8fde3fea06d2_a854b6bc_100" src="https://github.com/user-attachments/assets/17146a5d-3f73-4455-9066-2e415a236d43" />
@@ -25,6 +27,7 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="95" height="51" alt="tumblr_09f1b87e7eb27f1fa732c674ec2ab0f8_c9ff061f_100" src="https://github.com/user-attachments/assets/0abdf865-c48f-48b4-a516-46dd2a00198f" />
 <img width="110" height="60" alt="tumblr_d280eaeb4e421fe274eee8cee2a99bab_6c2a73f0_250" src="https://github.com/user-attachments/assets/ad62105a-bb7d-405e-8d24-17724bb1e6de" />
 <img width="99" height="56" alt="tumblr_4d4d70401344c157bc25f2a9acc142af_df527c16_100" src="https://github.com/user-attachments/assets/9341a316-92bb-4098-a7fc-bcb88be3948f" />
+
 
 
 
