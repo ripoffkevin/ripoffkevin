@@ -35,6 +35,8 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76e5ba&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&redirect=true) ♬⋆.˚
 <img width="88" height="31" alt="22f1fbf3" src="https://github.com/user-attachments/assets/a4059fa4-ed8b-45ee-b36d-633f51e006b2" />
+
+
 (if nothing's playing, im probably listening to/watching something on youtube!! just ask me :D)
 
 
