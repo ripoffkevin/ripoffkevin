@@ -27,6 +27,9 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="95" height="51" alt="tumblr_09f1b87e7eb27f1fa732c674ec2ab0f8_c9ff061f_100" src="https://github.com/user-attachments/assets/0abdf865-c48f-48b4-a516-46dd2a00198f" />
 <img width="110" height="60" alt="tumblr_d280eaeb4e421fe274eee8cee2a99bab_6c2a73f0_250" src="https://github.com/user-attachments/assets/ad62105a-bb7d-405e-8d24-17724bb1e6de" />
 <img width="99" height="56" alt="tumblr_4d4d70401344c157bc25f2a9acc142af_df527c16_100" src="https://github.com/user-attachments/assets/9341a316-92bb-4098-a7fc-bcb88be3948f" />
+<img width="99" height="55" alt="tumblr_5a59f91cd9eec1be57a651ad48679f4b_53eb52d0_100" src="https://github.com/user-attachments/assets/24769348-333c-45e0-ac44-5a5bb74af80e" />
+<img width="99" height="55" alt="tumblr_028cbf3fdf98e73451ddb6cef05e29bb_2af4cfe5_100" src="https://github.com/user-attachments/assets/fed8fc90-be50-4ba7-8486-e6b2970afa55" />
+<img width="99" height="54" alt="tumblr_45716ac1c7fcf93de8b6635b6552f2bc_de02607a_100" src="https://github.com/user-attachments/assets/c7d2a81a-32f6-4561-9f8b-068a2816d5f3" />
 
 
 
