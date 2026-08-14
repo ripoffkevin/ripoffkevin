@@ -40,6 +40,11 @@ some of my stamps are partially joking stamps. if you think one is serious, just
 <img width="109" height="64" alt="d6j8l1u-492103a7-3c36-49b3-8e51-a53eefe4095f" src="https://github.com/user-attachments/assets/d3e8b8ac-7ffe-47bd-af6b-c22a7d290249" />
 <img width="99" height="56" alt="di9wcyh-b21c997c-f725-49ec-9831-fab9bd9b4645" src="https://github.com/user-attachments/assets/79315e17-a122-48b2-aaee-777606675a27" />
 <img width="99" height="57" alt="ezgif com-gif-maker (1)" src="https://github.com/user-attachments/assets/53efcc66-da17-456f-8922-3943b1a7c230" />
+<img width="99" height="56" alt="tumblr_e2cf4ae0f2b3c3a857f4c7a12323ed2c_f12220b2_100" src="https://github.com/user-attachments/assets/5188615a-42b0-4039-91d8-bf7bb78698e3" />
+<img width="99" height="55" alt="tumblr_13a345cdbd674cd2a88c4d86d159488f_4da9a0da_100" src="https://github.com/user-attachments/assets/e636dd41-6d80-4ce7-bd0f-3fd57750bdbd" />
+<img width="99" height="56" alt="tumblr_88a197219b3528f41b0c69b2bb2b99ba_50b0f84a_100" src="https://github.com/user-attachments/assets/f5b4ce9e-17a9-4cd8-bca4-ea3789a393b4" />
+<img width="99" height="57" alt="tumblr_a3b8381194cd30f57fa2f73770c58a44_8f21bc94_100" src="https://github.com/user-attachments/assets/47bd1091-0ec3-4451-b3b2-627ce39aa6e8" />
+
 
 
 
@@ -54,7 +59,9 @@ some of my stamps are partially joking stamps. if you think one is serious, just
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76e5ba&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&redirect=true) ♬⋆.˚
-<img width="88" height="31" alt="22f1fbf3" src="https://github.com/user-attachments/assets/a4059fa4-ed8b-45ee-b36d-633f51e006b2" />
+<img width="88" height="31" alt="tumblr_d18cc11663adec9fd0c3a4836372735b_d10cc9a7_100" src="https://github.com/user-attachments/assets/1cf7bdb0-8e97-41f1-89e7-d6383629e804" />
+<img width="88" height="31" alt="tumblr_51383376c125a9a9c3069bfe400f2258_44d2d745_100" src="https://github.com/user-attachments/assets/d9132b32-0dc5-44f3-b468-1b9ba4be8d77" />
+
 
 
 (if nothing's playing, im probably listening to/watching something on youtube!! just ask me :D)
