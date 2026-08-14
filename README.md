@@ -8,6 +8,7 @@ call me ripoffkevin or marco, i usually hunt clovers/pearls, sit around afk, or 
 i will block you if you dont like me. its not all that hard to leave me alone if you dislike my stances on things.
 
 if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely get uncomfortable otherwise!!! DO NOT CALL ME SHE OR HER AT ALL IN MY JAX PONY!! I DONT BELIEVE IN TRANSFEM JAX AND YOU SHOULDNT EITHER!!!
+some of my stamps are partially joking stamps. if you think one is serious, just ask :D
 
 
 
@@ -30,6 +31,16 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="99" height="55" alt="tumblr_5a59f91cd9eec1be57a651ad48679f4b_53eb52d0_100" src="https://github.com/user-attachments/assets/24769348-333c-45e0-ac44-5a5bb74af80e" />
 <img width="99" height="55" alt="tumblr_028cbf3fdf98e73451ddb6cef05e29bb_2af4cfe5_100" src="https://github.com/user-attachments/assets/fed8fc90-be50-4ba7-8486-e6b2970afa55" />
 <img width="99" height="54" alt="tumblr_45716ac1c7fcf93de8b6635b6552f2bc_de02607a_100" src="https://github.com/user-attachments/assets/c7d2a81a-32f6-4561-9f8b-068a2816d5f3" />
+<img width="99" height="56" alt="dmgvn89-c14eef42-074a-4adf-8a2e-24a9ae5731eb" src="https://github.com/user-attachments/assets/4110e362-99e5-4c28-854e-7b5a6921d38d" />
+<img width="99" height="56" alt="d1iydz2-75666fe0-a333-4693-8ece-4c810448ea32" src="https://github.com/user-attachments/assets/5ab92044-6b86-4928-91aa-4d98de7d0158" />
+<img width="99" height="56" alt="dkj0iry-d67b76f7-f587-4301-a69a-e94f04f0dd60" src="https://github.com/user-attachments/assets/73ca0ce3-c9f5-44f4-90a5-af0cc025ba45" />
+<img width="99" height="57" alt="dga784v-2882268b-6a4b-497f-96df-69f56979d8b9" src="https://github.com/user-attachments/assets/067e474b-c9ba-4283-9aab-4f33d53c3d2b" />
+<img width="99" height="57" alt="dg9k9b3-7ecf8789-7104-4d73-aee4-db521bcad5f9" src="https://github.com/user-attachments/assets/1f886166-3537-48e2-a79b-9a7a08c1e409" />
+<img width="99" height="55" alt="dga3g4g-afae7348-b123-4be6-a512-d8830e20d164" src="https://github.com/user-attachments/assets/a204f755-71fe-41a2-961d-b6c4996c28f7" />
+<img width="109" height="64" alt="d6j8l1u-492103a7-3c36-49b3-8e51-a53eefe4095f" src="https://github.com/user-attachments/assets/d3e8b8ac-7ffe-47bd-af6b-c22a7d290249" />
+<img width="99" height="56" alt="di9wcyh-b21c997c-f725-49ec-9831-fab9bd9b4645" src="https://github.com/user-attachments/assets/79315e17-a122-48b2-aaee-777606675a27" />
+<img width="99" height="57" alt="djf2e5f-a6d48849-9669-4943-ac8e-2143d42e9e22" src="https://github.com/user-attachments/assets/78a999f4-1f9f-4c70-b78b-bc94cdcc40b1" />
+
 
 
 
