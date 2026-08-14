@@ -39,7 +39,8 @@ some of my stamps are partially joking stamps. if you think one is serious, just
 <img width="99" height="55" alt="dga3g4g-afae7348-b123-4be6-a512-d8830e20d164" src="https://github.com/user-attachments/assets/a204f755-71fe-41a2-961d-b6c4996c28f7" />
 <img width="109" height="64" alt="d6j8l1u-492103a7-3c36-49b3-8e51-a53eefe4095f" src="https://github.com/user-attachments/assets/d3e8b8ac-7ffe-47bd-af6b-c22a7d290249" />
 <img width="99" height="56" alt="di9wcyh-b21c997c-f725-49ec-9831-fab9bd9b4645" src="https://github.com/user-attachments/assets/79315e17-a122-48b2-aaee-777606675a27" />
-<img width="99" height="57" alt="ezgif com-gif-maker" src="https://github.com/user-attachments/assets/c9d64828-50d0-401e-b41b-8653f303068e" />
+<img width="99" height="57" alt="ezgif com-gif-maker (1)" src="https://github.com/user-attachments/assets/53efcc66-da17-456f-8922-3943b1a7c230" />
+
 
 
 
