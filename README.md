@@ -50,6 +50,7 @@ some of my stamps are partially joking stamps. if you think one is serious, just
 <img width="99" height="55" alt="tumblr_13a345cdbd674cd2a88c4d86d159488f_4da9a0da_100" src="https://github.com/user-attachments/assets/e636dd41-6d80-4ce7-bd0f-3fd57750bdbd" />
 <img width="99" height="56" alt="tumblr_88a197219b3528f41b0c69b2bb2b99ba_50b0f84a_100" src="https://github.com/user-attachments/assets/f5b4ce9e-17a9-4cd8-bca4-ea3789a393b4" />
 <img width="99" height="57" alt="tumblr_a3b8381194cd30f57fa2f73770c58a44_8f21bc94_100" src="https://github.com/user-attachments/assets/47bd1091-0ec3-4451-b3b2-627ce39aa6e8" />
+<img width="99" height="57" alt="24d9027a6db2ba6409d2b1ba3a23e3df" src="https://github.com/user-attachments/assets/620d902c-b082-4441-8534-5ddea246e7db" />
 
 
 
