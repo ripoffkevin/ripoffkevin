@@ -54,7 +54,6 @@ some of my stamps are partially joking stamps. if you think one is serious, just
 ![image](tumblr_5d5b21ce8a4662bb7b0628dfed542b72_580b0de4_100.webp)
 ![image](tumblr_6c6c182d81965362534542a91e5238f0_c347dcd7_100.webp)
 ![image](tumblr_6e87ca57cfc4204146a5683594242fdc_2ef71a4e_100.webp)
-![image](tumblr_b882a514a5c1d960f7cb903ade140cc1_840aadb4_100.webp)
 ![image](tumblr_d22c4da6b6941885462cc75526196c2a_d00d14e2_100.webp)
 
 
