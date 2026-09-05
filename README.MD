@@ -52,6 +52,11 @@ some of my stamps are partially joking stamps. if you think one is serious, just
 <img width="99" height="57" alt="tumblr_a3b8381194cd30f57fa2f73770c58a44_8f21bc94_100" src="https://github.com/user-attachments/assets/47bd1091-0ec3-4451-b3b2-627ce39aa6e8" />
 <img width="99" height="57" alt="24d9027a6db2ba6409d2b1ba3a23e3df" src="https://github.com/user-attachments/assets/620d902c-b082-4441-8534-5ddea246e7db" />
 ![image](tumblr_5d5b21ce8a4662bb7b0628dfed542b72_580b0de4_100.webp)
+![image](tumblr_6c6c182d81965362534542a91e5238f0_c347dcd7_100.webp)
+![image](tumblr_6e87ca57cfc4204146a5683594242fdc_2ef71a4e_100.gif)
+![image](tumblr_b882a514a5c1d960f7cb903ade140cc1_840aadb4_100.webp)
+![image](tumblr_cd2d440d9125d31505f16438cfe51db1_40c423ae_100.gif)
+![image](tumblr_d22c4da6b6941885462cc75526196c2a_d00d14e2_100.webp)
 
 
 
